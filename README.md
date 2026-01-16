@@ -18,3 +18,4 @@ Jassems shopping list:
 > To be or not to be
 
 [Best Website ever](https://studysmart.studygroup.com/login/index.php)
+![Troll](https://miro.medium.com/v2/resize:fit:1100/format:webp/0*TIyZEw-obGR3ff8_)
